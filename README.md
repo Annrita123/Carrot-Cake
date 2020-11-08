@@ -1,0 +1,1 @@
+Carrot cake is a sweet and moist spice cake, full of cut carrots and toasted nuts, and covered in cream cheese icing. One part of the cake is that the orange flakes of cut carrot give the cake color and texture, along with sweetness and moisture.It is the most delicious and scrumptious cake ever.Let's get into the recipie..
