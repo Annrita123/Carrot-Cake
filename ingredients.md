@@ -19,8 +19,8 @@ CARROT CAKE
 
 ICING
 
-1 cup unsalted butter (225 g), (2 sticks) room temperature
-12 oz cream cheese (340 g), room temperature
-1 1/2 teaspoons vanilla extract
-2 cups powdered sugar (240 g)
-2 cups walnuts (200 g), crushed
+ 1 cup unsalted butter (225 g), (2 sticks) room temperature
+ 12 oz cream cheese (340 g), room temperature
+ 1 1/2 teaspoons vanilla extract
+ 2 cups powdered sugar (240 g)
+ 2 cups walnuts (200 g), crushed
